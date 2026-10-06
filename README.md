@@ -39,4 +39,4 @@ I monitor, troubleshoot, and secure real systems every day as an IT Associate 鈥
 
 ---
 
-馃摣 Open to **SOC Analyst L1 / Security Operations** roles 路 [LinkedIn](#) 路 [TryHackMe](#)
+馃摣 Open to **SOC Analyst L1 / Security Operations** roles 路 [LinkedIn](https://www.linkedin.com/in/john-jushua-c-47bb91175/) 路 [TryHackMe](https://tryhackme.com/p/joshuabchua11)
