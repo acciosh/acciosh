@@ -1,4 +1,4 @@
-# Hi, I'm Joshua 👋
+# Hi, I'm JJ 👋
 
 **Aspiring SOC Analyst (Tier 1)** · IT Associate · BSIT – Network Security, University of Makati
 📍 Philippines · 📧 jchua4569@gmail.com
